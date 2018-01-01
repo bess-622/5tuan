@@ -1,3 +1,5 @@
+<IMG SRC="img/logo.jpg" width=880>
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
