@@ -820,7 +820,7 @@ James Riser医生今年1月份在路易斯安那州的新奥尔良刚看过神�
 </tr>
 </tbody>
 </table>
-<h1 align="center">尽显神传之美 神韵的巨大能量（下）<h1 align="center">
+<h1 align="center">尽显神传之美 神韵的巨大能量（下） </b></hi>
 
 【大纪元2017年12月18日讯】（大纪元记者李韵综合报导）“整个社会、整个世界潮流，大家都往次级文化走，好像人活着的那种价值观都不见了、灵魂都散走了。”台湾合唱团创办人、指挥吴宏璋说，“神韵帮我们找回我们最高的灵魂！”<p>
 
@@ -987,7 +987,7 @@ James Riser医生今年1月份在路易斯安那州的新奥尔良刚看过神�
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/XXXXX"></td>
+<td align="center"><IMG SRC="img/99.jpg"></td>
 </tr>
 <tr>
 <td align="center">法国Palluau市长Robert Bourasseau（左图）、知名音乐家桑塔纳（Pepe Santana）（右图，右）推崇神韵演出。（大纪元合成图）</td>
