@@ -809,6 +809,242 @@ James Riser医生今年1月份在路易斯安那州的新奥尔良刚看过神�
 “感觉太真实了！这是对我们当今所有人强有力的警示，不要迷失方向。”美国强生公司（Johnson & Johnson）分析研发部主管索顿（Tam Soden）说：“因为人们很容易迷失在高楼大厦和对金钱的贪婪中。而演出所展示的正气，完全通过艺术展现出来！”#
 
 （未完待续）
+<hr>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1705061726341973-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">5月6日下午，神韵国际艺术团在新泽西表演艺术中心(New Jersey Performing Arts Center) 的演出继续全场爆满的盛况。（戴兵／大纪元）</td>
+</tr>
+</tbody>
+</table>
+<h1 align="center">尽显神传之美 神韵的巨大能量（下）<h1 align="center">
+
+【大纪元2017年12月18日讯】（大纪元记者李韵综合报导）“整个社会、整个世界潮流，大家都往次级文化走，好像人活着的那种价值观都不见了、灵魂都散走了。”台湾合唱团创办人、指挥吴宏璋说，“神韵帮我们找回我们最高的灵魂！”<p>
+
+前美国国会议员理查·史威特（Richard Swett）说：“我感受到满满的希望，如释重负，生命获得提升。因为神韵，世界变得更好了！”
+
+古人云“从善如登、从恶如崩”。21世纪的今日，道德日益崩溃，宛如土石流下滑。传统文化与传统价值观，渐渐被人遗忘。但与此同时，在世界各地顶级剧院的舞台上，神韵呈献一个个小舞剧，展现正气，守护家庭价值，促进社会道德意识复苏，如一股股清流，深入人心。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/2f14853cce734ec925df9f4ce511e45e-e1493945804518.jpg"></td>
+</tr>
+<tr>
+<td align="center">2017年5月3日晚，神韵国际艺术团在新泽西表演艺术中心（NJ PAC）的演出迎来了全场爆满的盛况。（戴兵／大纪元）
+启迪人心的力量——21世纪的巨大希望</td>
+</tr>
+</tbody>
+</table>
+
+神韵的又一个巡演季节来了！这也代表着神韵艺术家们连续近五个月，将日复一日地翻山越海，马不停蹄在各城市剧场间奔波演出。神韵巡回艺术团团长李维娜表示：“我们靠的是一种坚持，坚持重现五千年的中华文明，使人心回归良善。”
+
+惊叹、感动、落泪是许多神韵观众自然流露出的情感。神韵之美及其所展现的文化内涵，启迪人心，引发心灵共鸣，有不少观众一看再看。一个来自纽约、以复兴神传文化为使命的演出，十多年来带给全世界的正面能量，积累下来会有多强？
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/111-3.jpg"></td>
+</tr>
+<tr>
+<td align="center">捷克文化部长丹尼尔·贺曼（左图）、美国资深作家Sue Fleming（右图）推崇神韵演出带来光明希望。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+捷克文化部长丹尼尔·贺曼（Daniel Herman）说：“神韵演出的能量巨大无比，能环抱整个世界，带来伟大希望；是来自天堂的抚慰！”
+
+“演出充满带给人类的一种巨大希望，呈现著精神上的圣洁，让人感到喜悦。”美国资深作家Sue Fleming说，“神韵所带来的光明和喜悦已开始影响我的写作，我有一本书写得有点黑暗，对儿童来说不合适，我准备明天就坐下来，根据神韵的启发改写那部作品。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/22-5.jpg"></td>
+</tr>
+<tr>
+<td align="center">前美国国会议员理查·史威特（左图）、知名玻璃设计师Lena Bergström（右图，左）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+前美国国会议员理查‧史威特（Richard Swett）表示，神韵让世界变得更好。
+
+“整场演出我聚精会神，完全摒住呼吸。说实话，我都要哭了！”获得12项国家级“瑞典优秀设计奖”知名玻璃设计师Lena Bergström说，“演出很多主题都涉及到人的心灵，包括慈悲、信任、同情等，还有如‘你不应该为恶’、‘你有能力变好’、‘你可以回归’等信息，引发我很多的思考，现在还在我脑海中回旋。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/33-6.jpg"></td>
+</tr>
+<tr>
+<td align="center">可口可乐退休副总裁Frank Ros（左图，右），台湾合唱团创办人、指挥吴宏璋（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+圣地亚哥州立大学讲师帕拉博士（Dr. Luis Parra）说：“五千年前就有人告诉我们如何做人，但我们却好像没有汲取正面教训，一遍又一遍犯著同样错误！”
+
+可口可乐公司退休副总裁Frank Ros说：“观赏神韵，人得到了教化。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/44-4.jpg"></td>
+</tr>
+<tr>
+<td align="center">香港立法会议员梁耀忠（左图）、前釜山文化艺术振兴会理事长都龙福（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+香港立法会议员梁耀忠说：“神韵告诉我们什么是好、什么是不好的，什么是光明、什么是黑暗。”而香港民主动力执行委员林咏然则表示：“神韵不止展现善、恶的分别，还展现中华文化真正的精神大道，包括做一个正人君子！”
+
+“让人变善良就是教育啊！”韩国大邱韩医大学特聘教授、前釜山文化艺术振兴会理事长都龙福表示：“神韵的舞蹈展现非常巨大的教育之场，这点令人惊叹，感受到像电流冲击般的震撼！”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1704292306081973.jpg"></td>
+</tr>
+<tr>
+<td align="center">美国神韵巡回艺术团2017年4月29日晚在纽约州政府所在地奥本尼/斯克内克塔迪（Albany/Schenectady）普罗克特斯剧院(Proctors Theatre)的演出爆满。（戴兵／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+<b>回归道德与信神——源自理念的呼声</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/55-2.jpg"></td>
+</tr>
+<tr>
+<td align="center">前白宫总统摄影师Joe Heard（左图）、美国陆军准将洛佩兹（右图，右）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+前白宫总统摄影师Joe Heard誉神韵演出为“堪称世界第八大奇迹”。神韵的奇迹在哪里？11年来，这场艺术演出所带来的震撼，由来自近二十国家数百万不同种族的主流观众做出了见证。
+
+美国陆军准将洛佩兹（Hector Lopez）说：“我相信，只要通过观看和见证这场演出，我们就能成为更好的人，并与中华文化的灵魂融为一体！”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/66-2.jpg"></td>
+</tr>
+<tr>
+<td align="center">华府机构总裁Dave Wallace（左图）、美国国会资深众议员罗拉巴克（右图，右二）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+美国国会资深众议员罗拉巴克（Dana Rohrabacher）也表示：“这种令人难以置信的美好，在中国数千年前就存在了，这也是人们生活中最基本的一部分。演出证明在中国人的传统文化中，有多少善良和美好的事物可以和世界分享。”
+
+“演出的每个场景都散发出一种不同的光芒感受”，美国总统川普的儿子埃里克．川普（Eric Trump）观赏后说：“她演绎了太初之始，然后历经不同历史朝代，一直到当代今日。”
+
+美国华府机构“恢复美国使命”（Restore America Mission）总裁Dave Wallace表示：“我觉得川普总统应该来看这个演出，这样他能看到华人的高贵，以及中共对神传文化的破坏。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/makephotogallery.net_1513674554.jpg"></td>
+</tr>
+<tr>
+<td align="center">左图为美国总统川普2017年7月1日出席“自由集会”演讲时说：“我们是生活在神的护佑下的子民。”（Getty Images） 、川普的儿子埃里克．川普（Eric Trump）赞赏神韵演出演绎了太初之始，右图为2012年1月12日，Eric Trump和 LaraYunaska观赏神韵演出。（丹尼斯／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+今年以来，川普一再呼吁美国人要回归传统，他说：“美国人民崇拜神，而不是政府”。他在一次演讲中说道：“我们是谁？我们是生活在神的护佑下的子民。”“241年前，美国先父们在签署《独立宣言》时写道：美国人将永远记得，人权神授，我们的自由来自于造物主，任何外力都无法夺走它们。 ”
+
+近年世界主流纷纷重启“回归道德、我们信神”的呼吁，21世纪的精神力量有了新的趋向。
+
+<b>神性价值的纯正能量 —— 天人合一的桥梁</b><p>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/77.jpg"></td>
+</tr>
+<tr>
+<td align="center">美国著名宪法学者Roger Pilon（左图，右）、小提琴大师克里斯蒂昂·安辛那（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+“神韵会带来巨大影响，实际上她已经影响力巨大了！”美国著名宪法学者皮伦（Roger Pilon）说道。
+
+“神韵不仅给人上了一堂课，而且释放出一个巨大的信号”，意大利威尔第音乐学院教授、小提琴大师克里斯蒂昂·安辛那（Cristian Anzinger）说，“也给予了整个世界巨大希望。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/88.jpg"></td>
+</tr>
+<tr>
+<td align="center">三度诺贝尔医学奖提名人Simon Simonia（左图）、埃及皇室王子亚历山大·阿里·奥洛夫（Alexandre-Ali Orloff）（右图，右三）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+“神韵将为社会带来良善、正义、和平、谐和、伦理、道德、真理、诚实、信任”，三度获诺贝尔医学奖提名的Simon Simonia表示，“她启示人类以优美谐和的方式共存。”
+
+“我来到这里，主要是为了未来的一代”，埃及皇室王子亚历山大·阿里·奥洛夫（Alexandre-Ali Orloff）说：“这是灵魂、视觉、听觉和所有感官的巨大快乐，今晚跟我的家人来这里对我非常重要。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/XXXXX"></td>
+</tr>
+<tr>
+<td align="center">法国Palluau市长Robert Bourasseau（左图）、知名音乐家桑塔纳（Pepe Santana）（右图，右）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+“这是史无前例的演出。我感到非常幸福，感到舒服、自在、轻盈的一种自由。”法国Palluau市长Robert Bourasseau强调，“这是从天上来的，来自四面八方，包围着你。”
+
+有传统安第斯音乐（Andean music）代言人之称的音乐家桑塔纳（Pepe Santana）表示：“一定是有一个至高无上的神引领了中华文化。”
+
+特地从大陆赶至美国佛州观赏的大陆观众宇峰感动地说：“我懂得歌词的意义，现在大陆没有信仰，很多人把信仰当作了一种社交方式。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/10-1-2.jpg"></td>
+</tr>
+<tr>
+<td align="center">西班牙著名诗人、政治家卡尔斯·杜阿尔特（Carles Duarte）（左图，右）、阿根廷驻联合国前大使Felipe Frydman（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+“神韵演出之美是因为有神的护佑。”西班牙著名诗人、语言学家及政治家卡尔斯·杜阿尔特（Carles Duarte）说：“晚会通过音乐带给我们神性、构建了美丽的画面，表达了神性价值。”
+
+“演出折射出人与神之间的联系”，阿根廷驻联合国前大使Felipe Frydman赞誉，“文化诞生于对神的信仰，相信神给予我们生命，非常重要的传统价值都来自于神。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/11-1-3.jpg"></td>
+</tr>
+<tr>
+<td align="center">大韩民国佛教徒总联合会副会长李建镐（左图）、德国超级富豪麦克·奥托（Michael Otto）（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+大韩民国佛教徒总联合会副会长李建镐惊喜地表示：“通过神韵，我见到了佛国世界，心中不好的思想都没有了！”
+
+“在这里，灵性蕴含在中华宏大的文化中”，入榜《福布斯》的德国超级富豪麦克·奥托（Michael Otto）表示，“从节目一开始就可以看到，一切都有如在天上；随处可见的灵感都蕴含着神性的火花。”
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/12-7.jpg"></td>
+</tr>
+<tr>
+<td align="center">中华民国立法院长苏嘉全（左图）、纽约INSP电视网副总裁Mark King）（右图）推崇神韵演出。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+“神韵做了非常大的贡献，她让世界各国看到中华传统文化的精深博大。”中华民国立法院长苏嘉全说，“你不看会后悔一辈子的！”
+
+纽约INSP电视网副总裁Mark King建议看演出的观众：“记着带纸巾！她会感动你，以非常棒的方式感动你！”#
+2017年4月14日晚上7时半，美国神韵国际艺术团莅临好莱坞杜比剧院（Dolby Theatre）。首场演出爆满，一票难求。全场观众沈浸在中华五千年文化的绚丽神奇之中。（季媛／大纪元）
+
+责任编辑：李缘
 
 <hr><hr>
 
