@@ -1,5 +1,3 @@
-<b>2018年神韵报导分享文章</b>
-
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
