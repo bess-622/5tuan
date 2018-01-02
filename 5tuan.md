@@ -1,4 +1,4 @@
-<a href="https://github.com/syshow/5tuan/blob/master/download/Shen%20Yun%202018%20Official%20Trailer%201%20-%20Rediscover%20the%20Power%20of%20Art.mp4><img src="img/sy2018.jpg" width=880></a>
+<a href="https://github.com/syshow/5tuan/blob/master/download/Shen%20Yun%202018%20Official%20Trailer%201%20-%20Rediscover%20the%20Power%20of%20Art.mp4"><img src="img/sy2018.jpg" width=880></a>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
