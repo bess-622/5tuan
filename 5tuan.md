@@ -1,4 +1,102 @@
 <a href="https://github.com/syshow/5tuan/blob/master/download/Shen%20Yun%202018%20Official%20Trailer%201%20-%20Rediscover%20the%20Power%20of%20Art.mp4?raw=true"><img src="img/sy2018.jpg" width=880></a>
+
+
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/88d2032af51097d6dc9d6d8fd1812b6a-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">今年一月至四月，神韵艺术团将在巴尔的摩竞技场剧院（左上）、克莱斯勒厅（左下）、乔治梅森大学艺术中心（右上）和肯尼迪艺术中心歌剧院（右下）演出十八场。（大纪元合成）</td>
+</tr>
+</tbody>
+</table>
+<h1 align="center"><b>未演先热 神韵巴尔的摩票房火爆</b></h1>
+
+【大纪元2018年01月04日讯】（大纪元记者林乐予美国马里兰州报导）距离神韵艺术团莅临马里兰州巴尔的摩（Baltimore）开演还有近一个月，但对于当地观众来说，想买到正中、靠前的高价票，机会已经很少了。从一月至四月，神韵艺术团将在华府地区的四个城市演出十八场，有意前往的观众可要尽早订票了。<p>
+
+<b>巴尔的摩开演前一月 票房火爆</b><p>
+1月26日至28日，神韵艺术团将在巴尔的摩竞技场剧院（Hippodrome Theater）演出四场。当地主办方向先生透露，目前从票房情况来看，周六（1月27日）和周日（1月28日）下午的两场演出已经近乎满场，另外两场演出的高价好座位也是一票难求。
+
+向先生表示，神韵在巴尔的摩演出多年，许多老观众已经总结出了经验——看神韵，就要提早买票才能得到较好的位置。也有观众连续数年期待神韵，却总是没能如愿，今年便提前计划，早早买票。
+
+竞技场剧院经常承接百老汇的各类演出。剧院方发现，其它演出的观众团体大多比较单一，而神韵的受众则极为广泛——不同年龄层、各族裔的男女老少都来买票。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/Baltimore2017.jpg"></td>
+</tr>
+<tr>
+<td align="center">曾任美国驻联合国代表的Ellen Sauerbrey女士（左）和小号演奏家Wayne Cameron（右）于2017年在巴尔的摩观看了神韵演出。（大纪元合成）</td>
+</tr>
+</tbody>
+</table>
+
+曾任美国驻联合国代表、国务院助理国务卿的Ellen Sauerbrey女士于2017年在巴尔的摩观看神韵后表示：“我无条件地喜欢这个演出，也非常喜爱演出背后所传递的信息，深受触动！”
+
+在约翰霍普金斯大学皮博迪音乐学院执教三十余年的小号演奏家Wayne Cameron表示，神韵音乐突破中西方乐器的局限，令他耳目一新。他还说：“编曲真的非常好，和舞蹈、音乐都很搭配，制作精良，令人陶醉。”
+
+来自大陆的燕先生四次追看神韵，他认为演员们通过形体动作展示了内在的美，而对于中国传统文化的展现，会引起所有人的共鸣。他说：“我觉得她（神韵）的美，一种与众不同的美，是一种源自内心的美。”
+
+<b>神韵感动华府十数万观众 维州加演</b><p>
+神韵艺术团从2006年在纽约成立，连续多年莅临华府演出，已有十数万观众在现场观看神韵。
+
+对于生活在大华府地区的美国人来说，“神韵”这一汉语词汇并不陌生，她不仅代表着正统顶级的中国古典舞、中西合璧的现场交响乐团、流光溢彩的天朝服饰和炫目奇幻的动态天幕，更象征着美好、善良、正能量和高端的定义。
+
+为了满足当地观众的期待，神韵艺术团今年将于3月12日至14日，首次在华府近郊、维吉尼亚州费尔法克斯郡的乔治梅森大学艺术中心（George Mason University Center for the Arts Concert Hall）演出四场。
+
+2月7日至8日，神韵艺术团在维吉尼亚州诺福克（Norfolk）的演出由往年的两场加演至三场。
+
+4月10日至15日，神韵艺术团在华盛顿特区肯尼迪艺术中心歌剧院（The Kennedy Center Opera House）将演出七场。根据观众需求，周三的演出调整为下午场，为工作日购票的观众提供了更多选择。
+
+<b>2018新演季 全球观众热盼</b><p>
+2018年，神韵五大艺术团，携全新的原创节目，将巡演全球五大洲130多个城市，共举行500多场演出。
+
+圣诞节前，神韵艺术团在北美多个城市开始演出。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1712281559171973.jpg"></td>
+</tr>
+<tr>
+<td align="center">2017年12月28日，神韵世界艺术团在波士顿博赫王安剧院的第二场演出全场爆满加座。（戴兵／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1712290031081886.jpg"></td>
+</tr>
+<tr>
+<td align="center">2017年12月28日，加拿大首都出现极寒气候，体感温度近零下三十度。严寒天气并未阻挡渥太华主流民众对神韵的热切期待。神韵纽约艺术团在渥太华的首场国家艺术中心演出几近售罄。主流民众观赏后，称赞神韵是大师级演出。（艾文／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+2017年12月29日晚，前美国国家情报委员会（National Intelligence Council, NIC）主席、哈佛大学教授Richard Cooper在波士顿观看神韵演出后说：“（神韵的）男女演员们都非常有天赋，观看演出是一种享受。”
+
+在圣荷西观看神韵的芭蕾舞团艺术总监Melissa James认为神韵演员的舞蹈技巧超乎神技，她还说：“神韵向观众倾注的色彩、艺术、愉悦、美好以及悲剧故事，向我们展现了人所能达到的最美好的境界──作为有灵性生命所能达到的最高、最美好境界。”
+
+在波士顿、加州圣荷西和弗雷斯诺、加拿大渥太华等地，均出现票房大爆满的盛况。
+
+<b>神韵演出购票网址</b><p>
+
+马里兰州巴尔的摩（1月26日至28日）：zh-tw.shenyun.com/baltimore/the-hippodrome-theatre
+
+维吉尼亚州诺福克（2月7日至8日）：zh-tw.shenyun.com/norfolk/chrysler-hall
+
+维吉尼亚州费尔法克斯（3月12日至14日）：zh-tw.shenyun.com/fairfax/george-mason-university-center-for-the-arts-concert-hall
+
+华盛顿特区（4月10日至15日）：zh-tw.shenyun.com/washington-dc/the-kennedy-center-opera-house
+
+责任编辑：肖琳
+
+<hr>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
