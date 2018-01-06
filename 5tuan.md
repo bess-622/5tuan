@@ -1,4 +1,4 @@
-<a href="http://114.37.20.196/sy/"><img src="img/sy2018.jpg" width=880></a>
+<a href="http://118.161.48.86/sy/"><img src="img/sy2018.jpg" width=880></a>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
