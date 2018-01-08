@@ -1,4 +1,4 @@
-+ <TD align="center"><b>线上观赏与下载</b><td><br> 
++ <TD><b><a href='http://118.161.48.86/sy'>线上观赏与下载</a></b><td><br> 
 + <a href='http://118.161.48.86/mp4/news668/2016/02/syTechShow720.mp4'>【神韵艺术团中国古典舞技巧表演】720p</a>
 + <a href='http://118.161.48.86/mp4/news668/2016/02/syTechShow.mp4'>【神韵艺术团中国古典舞技巧表演】480p</a>
 + <a href='http://118.161.48.86/mp4/news668/2016/02/syMusic720.mp4'>【神韵音乐】720p</a>
