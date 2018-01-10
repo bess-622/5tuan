@@ -11,7 +11,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/1801072031462153-600x400.jpg" width=880></td>
+<td align="center"><IMG SRC="img/1801072031462153-600x400 (1).jpg" width=880></td>
 </tr>
 <tr>
 <td align="center">“改变生命的演出”神韵旧金山八场全爆满</td>
