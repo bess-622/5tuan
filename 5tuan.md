@@ -370,7 +370,7 @@
 
 伯雷利（Joseph C. Borelli）
 
-责任编辑：王愉悦
+责任编辑：王愉悦<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
