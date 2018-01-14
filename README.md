@@ -1,12 +1,610 @@
-<a href="http://114.43.33.190/sy/"><img src="img/sy2018.jpg" width=880></a>
-+ <TD><b><a href='http://114.43.33.190/sy'>线上观赏与下载</a></b><td><br> 
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/syTechShow720.mp4'>【神韵艺术团中国古典舞技巧表演】720p</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/syTechShow.mp4'>【神韵艺术团中国古典舞技巧表演】480p</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/syMusic720.mp4'>【神韵音乐】720p</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/syMusic480.mp4'>【神韵音乐】480p</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/concat6680.mp4'>【神韵演出特别报导】《一》</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/concat6681.mp4'>【神韵演出特别报导】《二》</a>
-+ <a href='http://114.43.33.190/mp4/news668/2016/02/concat6682.mp4'>【神韵演出特别报导】《三》</a>
+<img src="img/sy2018.jpg" width=880></a>
+<img src="img/sy-IP-0104-1.jpg" width=880></a>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801102121161886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">1月10日，神韵国际艺术团在沙加缅度中心剧院的2场演出均座无虚席，一票难求。（周容／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+<h1 align="center"><b>沙加缅度座无虚席 奥斯卡奖导演盛赞神韵</b></h1>
+
+【大纪元2018年01月11日讯】（大纪元美国旧金山记者站沙加缅度报导）1月10日加州首府沙加缅度拨云见日，替萧瑟的寒意带来了温暖，社区中心剧院里的暖意更是破表。慕名前来观赏2场神韵国际艺术团演出的观众将一楼到三楼的座位挤爆，全场欢呼声此起彼落。<p>
+
+演出结束时络驿不绝的观众跑去向剧场领位员表达对神韵艺术家的敬佩与感谢，领位员来不及一一解释他们并非神韵工作人员，因为来致谢的观众川流不息；在剧院外，神韵节目册成了陌生观众彼此沟通的密码，只要互相瞄见手上有节目册，陌生的观众们马上可以热烈地聊开来。
+
+这股暖意回荡在社区中心剧场每个角落，从观众到工作人员人人笑逐颜开，一位剧场领位员表示，在剧院工作多年，他从未见过这种场面。
+
+<b>奥斯卡奖电影导演：神韵演员的水平超凡脱俗</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801110205102153.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center"著名获奖电影制片人Kieth Merrill表示，神韵演出精彩绝伦。（周容／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“神韵演出精彩绝伦！”著名电影导演、制片人、作家Kieth Merrill说，“我和我的太太都非常陶醉。我对神韵展现的神性也非常钦佩。”
+
+Merrill相信上帝的存在，他表示：“神韵展现的精神层面非常正面，我非常支持，令人耳目一新，我非常喜欢。”
+
+他认为神韵展现的天国世界非常正面，他的太太也惊呼：“没想到有精神层面的内容，非常好。在当今世界，人们都非常小心的表达自己的观点、和信仰。当我看到有人站出来表达自己的信仰，我很喜欢。我为他们鼓掌。”
+
+谈到神韵演员的舞蹈技巧，Merrill说：“他们的水平超凡脱俗，他们跳舞时好像毫不费力，看似很容易，非常美。”
+
+他表示，他的太太有一个舞蹈方面的基金会，他们非常了解舞蹈，以及所需要的训练，“神韵非常了不起！”
+
+Merrill尤惊讶于神韵的天幕：“太棒了，我了解到神韵的天幕是有专利的，演员与人物的互动非常有娱乐性。做的非常成功！这种手法拓宽了时空，配合的很好，绝对是讲故事的好方式。”
+
+他在网上看到神韵的消息，朋友给了他神韵网站的链接，他看了广告片就决定来看神韵了。“神韵非常出色，我们非常陶醉，很高兴。如果有机会，人们应该来看神韵。神韵非常独特。”
+
+Merrill是电影制片人、导演、作家。他是美国电影学会成员，也是美国导演协会成员，共拍摄了至少30部电影和电视剧。由他导演并担任制片的《The Great American Cowboy》曾获得1974年奥斯卡最佳纪录片奖；他拍摄的电视连续剧《The Wild West》曾获艾美奖提名；他执导的IMAX电影《Amazon》获得奥斯卡最佳短片奖提名。
+
+<b>管理集团创办人：期盼神韵在大陆演出</b><p>
+  
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801102121001886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">心理健康管理集团创办人Thomas Ortner（右一）及贀生John Riley（左二）。（杨少玉／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“演出非常精彩，这是一台杰出的制作。”Thomas Ortner对神韵演员们的完美精准觉得难以用词汇形容，“那种高度精准，我无法找到词汇描述所有舞蹈演员们那种完美协调一致，美丽极了。每个人的脚都同一时间落下，每个旋转都同步，让人震撼。”
+
+Ortner退休前是一家心理健康管理集团的创办人及执行长，曾获心理卫生界许多褒奖，并曾历任美国中西部及加州多家医院执行长。他把1月10日下午的神韵票做为圣诞襛物送给朋友John Riley，两对夫妇一起欣赏了神韵演出，四人赞叹不已。
+
+神韵展示的中国传统文化和艺术，让Ortner对中国有了崭新的认识，“我觉得当今媒体报导的中国和今天我们在舞台上看到的完全不同。我希望中国大陆的百姓也能看到神韵，我知道目前神韵还不能在大陆上演，如果神韵有一天能在大陆演出，那就太好了！”
+
+<b>Ortner表示，他绝对会推荐大家来欣赏神韵。</b><p>
+
+John Riley退休前是医生，神韵的音乐和二胡独奏让他难以忘怀，“神韵乐团的音乐很独特，我特别喜欢那个二胡独奏，那么动听，把人带入一个美丽境界，独一无二。”
+
+“那个乐器的音色很像人的嗓音，比小提琴像多了。那位演奏家展示出惊人的音域，她的手非常灵活，肯定需要无数的辛苦训练，才能达到那样完美，那么动听。”
+
+Riley表示神韵的舞蹈富有表现力，他很容易理解故事情节，“故事情节通过舞蹈丰富的表达出来，我觉得那些道具、服饰、头饰、手帕、长袖等等，都在故事情节中起着重要角色。故事情节并不复杂，但是和舞蹈非常相配，虽然是通过舞蹈无声的演出，但一点都不难理解，非常动人。”
+
+Riley对神韵的背景天幕也非常推崇，他说： “我对神韵的动态背景和舞台上演员之间的互动着迷，背景天幕效果非常逼真。”
+
+<b>退休长号手：神最终回来救赎人类</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801110205252153.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">交响乐团长号手Dvaid Parker表示，他非常喜欢神韵。（于丽丽／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+David Parker先生退休前在交响乐团里吹奏长号，1月10日晚，他欣赏了沙加缅度的第三场神韵。他说，“我非常喜欢神韵，乐团器乐搭配平衡的很好。”
+
+他也很欣赏神韵的色彩，“舞蹈演员们非常神奇。我看过很多芭蕾舞表演，神韵的色彩要绚丽得多，各种色彩和背景色彩，美妙地融合在一起。”
+
+“神韵的故事启迪人心，人们从中学习到中国传统文化和历史。”Parker对神韵故事里表现中共迫害善良人信仰的故事很有感触，“中国人经受苦难，尽管他们受到政治、信仰上的迫害，他们仍然对信仰坚忍不拔。中共企图摧毁中国传统文化，这真令人伤心。但是中国人渡过磨难，至少在神韵的故事中，他们秉承中国的传统文化，并把她发扬光大；而在中国大陆（传统文化）却几乎被毁坏殆尽。”
+
+Parker体悟到对神的信仰是普世的，超越宗教、文化界限，他说：“我也是有信仰的人，我很欣赏中国人对神的信仰。无论我们信仰什么，这种精神上的追求是超越宗教的，虽然我们来自不同的文化背景，我们有同样的精神追求。”
+
+同时，故事中神帮助善良人让Parker 感受到希望，“神最终回来救赎人类。宗教信仰是普世的，我们都渴望相同的美好结局。”
+
+Parker称赞神韵的动态天幕神奇，“神韵的背景天幕神奇地与舞台上演员互动，神韵的天幕设计非常高明， 演员们知道什么时候跳入背景，时间拿捏得非常精准。”
+
+责任编辑：周行
+
+<hr>
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/download-3-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">神韵艺术团将于1月11日在纽约林肯中心开始2018年巡演，已收到近80位纽约政要的褒奖及贺信。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+<h1 align="center"><b>迎神韵艺术盛典 近80位纽约政要褒奖祝贺</b></h1>
+
+【大纪元2018年01月11日讯】（大纪元记者林燕美国纽约报导）神韵艺术团将于1月11日莅临纽约林肯中心大卫寇克剧院，开始10天14场的2018年演出。纽约州近80位政要，其中包括14位国会议员、18位纽约州参议员和24位众议员以及纽约市级及区级议员等发来褒奖和贺信，祝贺神韵再次莅临纽约。<p>
+
+神韵艺术团从2006年成立以来，通过纯正而历史悠久的中国古典舞、东西合璧的交响乐、栩栩如生的动态天幕和巧夺天工的传统服饰，将五千年历史文化蕴含的神圣之美，展现在全世界的舞台上。
+
+包括在世界文化之都纽约，神韵也早已通过口耳相传，屡次创下票房奇迹，成为纽约各界不容错过的艺术盛典。今年的神韵演出未演先热，主办方连加四场演出，仍一票难求。14位国会议员的褒奖及贺信均提及神韵对纽约，乃至全球艺术作出的杰出贡献。
+
+<b>神韵是纽约文化艺术必不可少的部分</b><p>
+
+纽约第6选区美国国会众议员孟昭文（Grace Meng）为神韵演出发来贺信。她表示，今年是神韵艺术团这一世界顶级艺术团在纽约演出的第12个年头，“这一文化演出展示了中国传统文化的美丽”。
+
+孟昭文表示，神韵结合现场音乐、美丽舞蹈以及绚丽服饰，并透过原创节目、充满活力的艺术表演以及文化内涵征服在场观众。
+
+“公众将有机会再次体验这一非凡艺术团体的富有深度的演出。”她说，“观众们也将会从中了解（中国）历史传奇，以及在这几千年来这些历史是如何演绎的。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1-support-letter-from-congresswoman-Grace-Meng.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第六选区美国国会众议员孟昭文（Grace Meng）为神韵发来贺信。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第7选区国会众议员维乐贵丝（Nydia M. Velazquez）也为神韵发来贺词，她表示，向所有参与以及主办神韵艺术团活动的全体人员致谢。
+
+她说，“纽约市长久以来都是欣欣向荣的华裔社区的家园。”神韵自12年前在纽约成立，“一直将古老的中国精神搬上舞台，通过世界级的舞蹈家、中国古典舞以及艺术形式带给观众欣喜”。
+
+她表示，神韵艺术团每年都在演出场次、艺术家参演人数以及艺术追求上突破纪录。“在保护中国优秀的文化遗产以及追求言论自由上，神韵艺术团已经成为纽约文化艺术必不可少的部分”，她说，“我祝愿有更多的成功演出”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/2-support-letter-from-congresswoman-Nydia-M.-Velazquez.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第七选区国会众议员维乐贵丝（Nydia M. Velazquez）也为神韵发来贺词，并向所有参与以及主办神韵艺术团活动的全体人员致谢。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第15选区国会议员塞拉诺（Jose Serrano）在贺信中写道：“神韵是真正的家乡瑰宝，体现我们城市的多样化、创新和特质。”他亦表示，神韵对纽约艺术领域的贡献将继续激励很多人追逐自己的梦想。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/8-support-letter-from-congressman-Jose-Serrano.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第15选区国会议员塞拉诺（Jose Serrano）在贺信中写道：“神韵是真正的家乡瑰宝。”</td>
+</tr>
+</tbody>
+</table>
+
+<b>神韵将真正的中国传统搬上舞台 极具价值</b><p>
+  
+纽约第10选区众议员纳德勒（Jerrold Nadler）赞扬说：“神韵一直致力于恢复中国五千年的历史文化，这是给纽约的真正礼物。”
+
+“我感谢神韵把中国传统民族舞带到美国，纽约有幸每年期待神韵重返（纽约）的演出。”他表示，“在中国（大陆）箝制艺术自由的时代，神韵艺术家将真正的中国传统和人生价值观搬上舞台，这种努力比以往更具有价值。”
+
+最后他在贺信中说，“向所有参与神韵演出的艺术家以及活动主办方致以最美好的祝愿，祝愿神韵演出在林肯中心取得成功。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/7-support-letter-from-congressman-Nadler.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第十选区众议员纳德勒（Jerrold Nadler）赞扬，神韵是给纽约的真正礼物。</td>
+</tr>
+</tbody>
+</table> 
+
+纽约第16选区国会议员恩格尔（Eilot Engel）是美国国会众议院外国事务委员会副主席，他表示：“我深知我们在西方享有的艺术自由，对神韵这样的艺术团体有多重要。”
+
+他说：“对我们能够给神韵提供不受约束、不用经受中共审查的演出平台，我甚感欣慰。”
+
+此外，他表示“神韵独一无二的演出体验，已经成为全球成千上万人预约观看的演出”，而“观众也已经并将继续从艺术自由中获益”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/10-support-letter-from-congressman-Eilot-Engel-1.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">美国国会众议院外国事务委员会副主席、国会议员恩格尔（Eilot Engel)表示，观众从神韵的自由艺术演出中获益。</td>
+</tr>
+</tbody>
+</table>
+
+<b>宏扬中国传统文化 并与世界分享</b><p>
+
+阿尔巴尼第19选区国会议员法索（John J. Faso）表示，神韵杰出的演出使全人类受益，并让各种文化的族裔都赞赏不已，“所有文化都必须与过去保持连续性，感谢神韵为保留和振兴中国传统文化所做的努力”。
+
+他表示自己是艺术的强力支持者，看到美国人如此喜欢神韵演出感到非常高兴，“神韵演出值得世界各地的人都来欣赏，聆听演出传递的信息”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/9-support-letter-from-congressman-John-J.-Faso.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">阿尔巴尼第19选区国会议员法索（John J. Faso）表示，神韵值得世界各地的人都来欣赏。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）在贺信中说：“我赞赏神韵艺术团的奉献精神，以及维护中国传统文化的使命，并把她分享给全世界。”
+
+“在多年的巡演中，神韵艺术团通过舞蹈、音乐和服饰的艺术形式将中国传统文化带给了数百万人。”他表示，神韵艺术团每年在30多个国家巡演，“其非凡演出为各个社区提供了难忘、独特的文化体验”。
+
+杰弗里还说，作为纽约第8区国会议员，“我要感谢你们做出的贡献及对艺术的奉献”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/4-support-letter-from-congressman-Hakeem-Jeffries.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）在贺信中赞赏神韵艺术团的奉献精神。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）在贺信中说，神韵演出是对中华文化的一种美好而艺术的诠释，“神韵在纽约上演是本市的荣誉，因为神韵演出──这独一无二的艺术珍品，激励和鼓舞了全球的观众。我相信神韵今年在林肯中心和纽约州立大学（SUNY Purchase）的演出将继续发挥神韵艺术团这一引以为豪的优秀传统”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/11-support-letter-from-congressman-Donovan.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）称赞神韵是独一无二的艺术珍品。</td>
+</tr>
+</tbody>
+</table>
+
+<b>国会议员宣布1月为纽约神韵月</b><p>
+  
+纽约第20选区美国国会议员唐古（Paul D. Tonko）在贺信中宣布将1月定为“神韵月”。唐古表示，“神韵对提升社会精神所做的贡献得到社区的认可”，“其价值不能用酬劳和赞许来充分表达”。
+
+他说神韵的宗旨是复兴真正的传统中国文化，演出节目取材来自于中国历史、古代传奇、少数民族及普世价值，每年在世界上150多个剧场演出。
+
+鉴于神韵演出在保留和促进传统中国文化、道德以及艺术所做出的努力，以及其丰富五千年中国历史的贡献，特此宣布从2018年1月11日开始，1月为“神韵月”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第20选区美国国会议员唐古（Paul D. Tonko）宣布将1月定为“神韵月”。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第9选区国会议员克拉克（Yvette D. Clarke）发来褒奖，表示：
+
+“基于神韵艺术团，这一伟大的中国传统文化遗产，根植于对神、信仰、美德及对升华回天的笃信；
+
+“基于神韵保留中华五千年历史的核心和精神，并将她与世界分享；
+
+“基于西方的艺术自由激励神韵艺术家将中国（大陆）禁止的、真正的古老中国传统和价值观搬上舞台；
+
+“基于神韵通过世界一流的艺术及中国古典舞的形式打开心灵、激励道德提升，并给各地观众带来喜悦，已形成国际奇观；
+
+“我，克拉克（Yvette D. Clarke），纽约国会第9选区国会议员，荣幸在此褒奖神韵艺术团。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/3-Proclamation-from-Congresswoman-Yvette-D.-Clarke.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第9选区国会议员克拉克（Yvette D. Clarke）为神韵艺术团发来褒奖。</td>
+</tr>
+</tbody>
+</table>
+
+此外，纽约第1选区国会议员泽尔丁（Lee M. Zeldin）和第3选区国会议员舒奥齐（Thomas R. Suozzi）也为神韵颁发特别国会嘉奖令。
+
+泽尔丁在嘉奖令中表示，鉴于神韵对社区所做出的杰出、可贵的服务，特此颁发特别国会嘉奖令。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/5-US-Congressman-1st-District-Certificate-Lee-Zeldin.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第1选区国会议员泽尔丁（Lee M. Zeldin）褒奖神韵对社区做出杰出、可贵的服务。</td>
+</tr>
+</tbody>
+</table>
+
+舒奥齐表示，神韵复兴和弘扬中国五千年历史文化的使命，以及与现代世界分享这一财富的努力鼓舞他人，为神韵将中国古典舞带给全球观众颁发特别国会嘉奖令。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/6-US-Congressman-3rd-District-Certificate-Thomas-R.-Suozzi.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">第3选区国会议员舒奥齐（Thomas R. Suozzi）为神韵颁发特别国会嘉奖令，鉴于神韵将中国古典舞带给全球观众的贡献。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第18选区国会议员马龙尼（Sean Patrick Maloney）亦给神韵艺术团发来褒奖。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney-1.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约第18选区国会议员马龙尼（Sean Patrick Maloney）发来褒奖，表彰神韵艺术团在纽约州致力于维护和弘扬五千年中国文化的贡献。</td>
+</tr>
+</tbody>
+</table>
+
+此外，纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）也发来给神韵艺术团的褒奖。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/14-Certificate-from-Congresswoman-Elise-M.-Stefanik.jpg" width=400></td>
+</tr>
+<tr>
+<td align="center">纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）为神韵艺术团发来褒奖。</td>
+</tr>
+</tbody>
+</table>
+
+附：向神韵艺术团2018年演出发出褒奖或贺信的纽约州各级政要部分名单
+
+<b>国会议员（14人）：</b><p>
+纽约第1选区国会议员泽尔丁（Lee M. Zeldin）
+
+纽约第3选区国会议员舒奥齐（Thomas R. Suozzi）
+
+纽约第6选区国会议员孟昭文（Grace Meng）
+
+纽约第7选区国会议员维乐贵丝（Nydia M. Velazquez）
+
+纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）
+
+纽约第9选区国会议员克拉克（Yvette D. Clarke）
+
+纽约第10区选区国会议员纳德勒（Jerrold Nadler）
+
+纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）
+
+纽约第15选区国会议员塞拉诺（Jose Serrano）
+
+纽约第16选区国会议员恩格尔（Eilot Engel）
+
+纽约第18选区国会议员马龙尼（Sean Patrick Maloney）
+
+纽约第20选区国会议员唐古（Paul D. Tonko）
+
+纽约第19选区阿尔巴尼国会议员法索（John J. Faso）
+
+纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）
+
+<b>纽约州参议员（18人）：</b><p>
+卡森斯（Andrea Stewart－Cousins），参议院民主党领袖
+
+艾维乐（Tony Avella）
+
+史塔文斯基（Toby Ann Stavisky）
+
+高顿（Martin J. Golden）
+
+蒙哥马利（Velmanette Montgomery）
+
+波萨德（Roxanne J. Persaud）
+
+奥特（Robert G. Ortt）
+
+布雷斯林（Neil D. Breslin）
+
+马齐奥尼（Kathleen Marchione）
+
+博奈西克（John J. Bonacic）
+
+汉默顿（Jesse E.Hamilton）
+
+泰迪斯可（James N. Tedisco）
+
+贝利（Jamaal T. Bailey）
+
+拉提梅尔（George Latimer）
+
+布鲁克斯（John E. Brooks）
+
+利浦斯（Elaine Phillips）
+
+博伊尔（Philip M. Boyle）
+
+纳瓦列（Kenneth LaValle）
+
+纽约州众议员（24人）
+奥博锐（Jeffrion L. Aubry）
+
+赫维希（Andrew D. Hevesi）
+
+圣巴巴拉（Angelo L. Santabarbara）
+
+麦克唐纳三世（John T. McDonald III）
+
+巴特勒（Marc W. Butler）
+
+科奇（Clifford W. Crouch）
+
+芬奇（Gary D. Finch）
+
+乔伊纳（Latoya Joyner）
+
+瓦内尔（Clyde Vanel）
+
+布莱克（Machael A. Blake）
+
+费伊（Patricia A. Fahy）
+
+沃尔什（Mary Beth Walsh）
+
+蒂勒（Fred Thiele）
+
+英格丽布如特（Steve Englebright）
+
+拉莫斯（Phil Ramos）
+
+加尔巴里诺（Andrew R Garbarin）
+
+卢皮纳奇（Chad Lupinaccio）
+
+拉亚（Andrew Raia）
+
+拉文（Charles Lavine）
+
+麦克唐纳（David G McDonough）
+
+乌尔索（Anthony D）Urso）
+
+麦凯维特（Thomas McKevitt）
+
+伦托（Joseph R. Lentol）
+
+约翰斯（Mark Johns）
+
+纽约市议员
+陈倩文（Margaret Chin）
+
+梅塞尔（Alan Maisel）
+
+伯雷利（Joseph C. Borelli）
+
+责任编辑：王愉悦
+<hr>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801072330351886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2018年1月7日，美国神韵纽约艺术团在多伦多最后两场演出圆满落幕，现场加拿大的各界名流云集。（艾文／大纪元）</td>
+</tr>
+</tbody>
+</table>
+<h1 align="center"><b>神韵多伦多压轴场爆满 社会名流观摩追捧</b></h1>
+
+【大纪元2018年01月08日讯】（大纪元记者滕冬育、李佳多伦多报导）2018年1月7日，美国神韵纽约艺术团在多伦多四季表演艺术中心的最后两场演出圆满落幕，两场观众爆满。<p>
+
+当天，不少加拿大艺术、经济、文化名流汇聚观看演出，他们被神韵之美所折服，被纯真美好的神性内涵所感动。他们感谢每一位神韵艺术家。
+
+<b>CBC获奖节目总监赞神韵“非常卓越”</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801071727112639.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">加拿大广播公司（CBC）获奖总监安东尼（George Anthony）先生是神韵的粉丝。（周行／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+神韵粉丝中不乏加拿大国家级传媒及艺术方面的名人，加拿大广播公司（CBC）获奖总监安东尼（George Anthony）先生就是其中的一位。
+
+安东尼负责的CBC电视节目，已经赢得100多个双子星奖（Gemini Awards），也获得了多项国际荣誉，包括2次国际艾美奖（International Emmy）、多项Rose d’Or和Prix Italia奖。他个人也获得多项荣誉，包括英女王伊丽莎白二世金禧奖章、Rose d’Or荣誉奖、Playback’s Film及电视名人堂、2015年加拿大银幕奖的学院特别奖。
+
+第一次观看神韵演出的安东尼兴奋地说：“神韵真是非常值得期盼与等待的演出。超乎预期的精彩，我们大家都真的被她迷住了。”
+
+对于舞蹈、服饰及舞台设计，安东尼都表示出极大的赞叹：“舞蹈演出真是超棒，服饰也是美不胜收，灯光、背景天幕是如此独一无二，创意无限。神韵的确是非常卓越！”
+
+他说：“在我脑海中激荡的东西真是太多了，无法尽诉。比如水袖舞、蒙古舞等都很精彩。我认为所有神韵演员都是非凡杰出的。而且，神传文化是令人惊叹且非常值得分享的，能够有机会通过神韵体验这文化，真是太好了！”
+
+神韵演出中巧妙融入了很多中国传统的历史故事，安东尼说：“神韵展现的故事都非常有趣、令人惊叹且引人入胜。如果非要举出一二，那我应该是特别喜欢孙悟空和巫师对战那个节目，非常有趣味。我觉得法轮功那个节目很让人惊叹。”
+
+神韵演出的一大特色是中西乐器天衣无缝地配合演奏，对此他说：“配乐妙极了，交响乐团演奏得太棒了，编排复杂而且真的很精彩。”
+
+最后，安东尼高兴地笑称：“作为CBC执行总监，我也很难向观众们尽诉我今天的感受。我绝对会向所有人推荐神韵，真的，一定要推荐的。”
+
+<b>国际软件公司总裁盛赞神韵的高科技天幕</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801072222451886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">软件公司总裁Mark Wallace先生和太太Anita Lorerri女士称赞神韵的美丽，表示将来一定再看神韵。（滕冬育／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+Mark Wallace先生是一家国际性软件公司的总裁，也是某大学董事会主席，曾经担任加拿大AT&T公司的副总裁和首席律师，他和妻子Anita Lorerri女士观看了最后一场演出，对于神韵赞叹不已。
+
+Wallace先生特别称赞神韵舞蹈演员矫健的身法：“晚会很精彩，尤其是那个蒙古草原上年轻人矫健的动作和独特的舞蹈，既好看又风趣，我们真是非常享受！”
+
+观看神韵也让Wallace先生了解了中国的历史和文化，他非常喜欢《西游记》的故事，尤其称赞其情节的编排非常高超。整个晚会给他留下了深刻印象：“非常惊人，无论是服装、舞蹈、色彩，当然还有乐团的演奏，我喜欢他们演奏的每一首曲子！”
+
+身为软件公司CEO，他对于神韵的高科技动态天幕非常向往，他称赞道：“我特别喜欢天幕，神韵把现实中物质的舞台和虚拟的空间有机地结合在一起，非常非常酷！”
+
+他的太太Lorerri女士是某美容用品公司的创始人和老板，她说她喜欢古典风格的舞蹈，今天的神韵晚会让她非常喜欢，节目中的内涵也让她思考。 最后，他们一致认为将来一定还要再看神韵。
+
+<b>加拿大知名音乐家和Emmy获奖作家：了不起的演出</b><p>
+  
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801072239031886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">加拿大著名音乐家兼作曲家Marc Ganetakos（左）和知名作家Charles Johnston（右）。（李佳／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“我们认为这是一场十分了不起的演出”，加拿大著名的音乐家兼作曲家Marc Ganetakos和知名作家Charles Johnston在观看演出后一同表示，神韵艺术家所展示的高超技艺令人佩服。
+
+Marc Ganetakos是加拿大最知名的多才艺音乐家兼作曲家之一，曾为多部影视作品创作世界级的音乐。他说：“我们很喜欢这场演出。我们俩都来自娱乐行业，我们是带着经过多年磨练的眼睛和耳朵来的，我觉得神韵演员们的确很出色。我们俩都认为这是一场十分了不起的演出，非常赏心悦目。”
+
+Charles Johnston是一位擅长儿童电视剧的作家，曾于2016年获得国际艾美奖（Emmy）杰出写作奖。他形容当晚的演出“十分奇妙，十分壮观”。
+
+神韵舞蹈演员的高超技巧令Charles Johnston感到惊奇，他说：“我们一直想，他们如何能在空中停留那么长的时间，对一般人来说不太可能，他们看起来十分超常。”
+
+神韵中西乐器合壁的音乐，二人都表示非常“美妙”，令人喜爱。Marc非常想知道音乐家使用的中国古典乐器的名字，而Charles则试图寻找中国古典乐器和西方乐器是如何配合的。“我们仔细聆听，分辨出中国古典乐器在中间的位置，而我们所熟悉的西方交响乐器环绕在周围的位置。”
+
+“音乐家极具天赋。”Marc说：“我很喜欢（神韵）的音乐，非常非常的欣赏。”
+
+<b>投资家：神韵正是我们迫切需要的</b><p>
+  
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801072223061886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">投资家Parasar女士（左）和朋友Bakhtiari（右）观赏了1月7日晚的神韵。（滕冬育／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+投资家Parasar女士表示，在过去的这些年，她的投资生意不断扩大，公司规模扩大，钱赚得越来越多，但是她感到这样的生活很乏味，没有充实的感觉，“钱不是生活的全部，我一直在寻找精神信仰，我去过多次西藏，想要找寻打坐修炼。正因为如此，我才如此的喜爱和仰慕神韵，因为神韵展示的正是我们迫切需要的。”
+
+她说，她已经是神韵的老粉丝了：“每一次看神韵都觉得很神奇，我打心里喜欢神韵！我几乎每年都来看，今天我带来了我的朋友，她完完全全被神韵震撼了！她告诉我明年会跟我一起来。我要谢谢神韵！我们真的非常爱神韵。”
+
+“非常喜爱！非常喜爱！非常喜爱！” Parasar连说了三遍。
+
+“神韵展示的神性内涵，我非常喜爱，也很高兴，这么多观众能跟我们一样，感受到这份内涵，认识这份内涵，支持这份内涵。”
+
+“我们会每年都回来看神韵，并且带来更多的朋友，更多的观众。” Parasar女士说：“我想要对神韵的艺术家们说，请继续你们的事业，你们的付出对我们而言意义深远。你们的确在激励我们、启迪我们。你们给予的那份美，那份神性内涵，完美的艺术呈现，我们的确接受到了！我们非常感激！衷心地感谢你们每一位。”
+
+Parasar的朋友Bakhtiari女士是位明星地产经纪。 Bakhtiari 女士说：“明年我要给我的客户买神韵票做礼物，我要支持神韵！”她表示，她非常想要给神韵提供赞助，“我会支持到底。”
+
+她说：“女高音的歌唱，我的天啊！我浑身像是通了电一样，歌声太美好了！歌词那么的充满神性和内涵。我是一个信神的人，今晚的歌词，正是我衷心喜欢、追寻的。”
+
+“无论你的人生处在何种阶段，听到这种充满神性的歌词，都会改变自己的人生。而对我而言，这种神性的展现让我全身通了电，我感到了生命的美好。”
+
+Bakhtiari 女士说：“我要对神韵的艺术家们说，请不要停下，我们一定会全心全意的支持你们！我们会让更多的人看到如此高质量的演出。或许有一天我能亲眼在生活中见到你们，我将会非常高兴。”
+
+责任编辑：文凤
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -117,6 +715,7 @@
 购票热线：418-907-7436
 
 责任编辑：颜永明
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -207,6 +806,7 @@ Laura Williamson女士是教堂合唱团的女高音，观看演出后Williamson
 “神韵女高音歌唱家的音域很广，控制了全场，歌唱很美。” “她的演唱触动人心，我很喜欢。她是一位非常优秀的女高音。歌唱振奋人心。整场演出令人心满意足而又放松。”
 
 责任编辑：夏晶
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -323,6 +923,7 @@ Malpert曾在百老汇演出歌舞剧，她说：“神韵的舞蹈很独特，�
 结束旧金山的演出后，神韵国际艺术团将于1月9日至10日，在加州首府沙加缅度社区中心剧院上演三场演出。目前，神韵在沙加缅度演出的票已基本售罄。
 
 责任编辑：周行
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -432,6 +1033,7 @@ Sonia Katyal女士曾是芭蕾舞演员，她说：“我曾经任职芭蕾舞�
 Katyal女士对神韵的演出意犹未尽，她表示：“观看完神韵，我觉得我更爱舞蹈了，并把我油然而生的、想去更多地了解神韵以及中国传统文化的动力带回家，而且，我很想把我的孩子带到神韵这里，让他们也能学习和了解古老的文化和价值。”
 
 责任编辑：文凤
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -552,6 +1154,7 @@ Garibaldi夫妇来自委内瑞拉，Garibaldi女士在委内瑞拉是一名古�
 “这是我们第一次看到神韵这种（舞蹈）演出，中国舞真是出类拔萃！”她一再赞叹。
 
 责任编辑：林蓁
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -1390,6 +1993,8 @@ Zuckerman的太太也对晚会称赞不已，“神韵演员们的舞蹈技巧�
 他们表示，等了几年，现在终于如愿以偿，来看神韵了。“我们非常高兴来看神韵了，绝对会向人们推荐神韵。”
 
 责任编辑：周行
+<hr>
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
@@ -2532,7 +3137,7 @@ James Riser医生今年1月份在路易斯安那州的新奥尔良刚看过神�
 
 责任编辑：李缘
 
-<hr><hr>
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
