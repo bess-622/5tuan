@@ -54,7 +54,7 @@ Merrill是电影制片人、导演、作家。他是美国电影学会成员，�
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="1801102121001886.jpg" width=880></td>
+<td align="center"><IMG SRC="img/1801102121001886.jpg" width=880></td>
 </tr>
 <tr>
 <td align="center">心理健康管理集团创办人Thomas Ortner（右一）及贀生John Riley（左二）。（杨少玉／大纪元）</td>
