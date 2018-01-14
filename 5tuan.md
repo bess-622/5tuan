@@ -4,7 +4,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="1801102121161886-600x400.jpg" width=880></td>
+<td align="center"><IMG SRC="img/1801102121161886-600x400.jpg" width=880></td>
 </tr>
 <tr>
 <td align="center">1月10日，神韵国际艺术团在沙加缅度中心剧院的2场演出均座无虚席，一票难求。（周容／大纪元）</td>
