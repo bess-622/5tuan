@@ -3,6 +3,378 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
+<td align="center"><IMG SRC="img/download-3-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">神韵艺术团将于1月11日在纽约林肯中心开始2018年巡演，已收到近80位纽约政要的褒奖及贺信。（大纪元合成图）</td>
+</tr>
+</tbody>
+</table>
+
+<h1 align="center"><b>迎神韵艺术盛典 近80位纽约政要褒奖祝贺</b></h1>
+
+【大纪元2018年01月11日讯】（大纪元记者林燕美国纽约报导）神韵艺术团将于1月11日莅临纽约林肯中心大卫寇克剧院，开始10天14场的2018年演出。纽约州近80位政要，其中包括14位国会议员、18位纽约州参议员和24位众议员以及纽约市级及区级议员等发来褒奖和贺信，祝贺神韵再次莅临纽约。<p>
+
+神韵艺术团从2006年成立以来，通过纯正而历史悠久的中国古典舞、东西合璧的交响乐、栩栩如生的动态天幕和巧夺天工的传统服饰，将五千年历史文化蕴含的神圣之美，展现在全世界的舞台上。
+
+包括在世界文化之都纽约，神韵也早已通过口耳相传，屡次创下票房奇迹，成为纽约各界不容错过的艺术盛典。今年的神韵演出未演先热，主办方连加四场演出，仍一票难求。14位国会议员的褒奖及贺信均提及神韵对纽约，乃至全球艺术作出的杰出贡献。
+
+<b>神韵是纽约文化艺术必不可少的部分</b><p>
+
+纽约第6选区美国国会众议员孟昭文（Grace Meng）为神韵演出发来贺信。她表示，今年是神韵艺术团这一世界顶级艺术团在纽约演出的第12个年头，“这一文化演出展示了中国传统文化的美丽”。
+
+孟昭文表示，神韵结合现场音乐、美丽舞蹈以及绚丽服饰，并透过原创节目、充满活力的艺术表演以及文化内涵征服在场观众。
+
+“公众将有机会再次体验这一非凡艺术团体的富有深度的演出。”她说，“观众们也将会从中了解（中国）历史传奇，以及在这几千年来这些历史是如何演绎的。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1-support-letter-from-congresswoman-Grace-Meng.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第六选区美国国会众议员孟昭文（Grace Meng）为神韵发来贺信。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第7选区国会众议员维乐贵丝（Nydia M. Velazquez）也为神韵发来贺词，她表示，向所有参与以及主办神韵艺术团活动的全体人员致谢。
+
+她说，“纽约市长久以来都是欣欣向荣的华裔社区的家园。”神韵自12年前在纽约成立，“一直将古老的中国精神搬上舞台，通过世界级的舞蹈家、中国古典舞以及艺术形式带给观众欣喜”。
+
+她表示，神韵艺术团每年都在演出场次、艺术家参演人数以及艺术追求上突破纪录。“在保护中国优秀的文化遗产以及追求言论自由上，神韵艺术团已经成为纽约文化艺术必不可少的部分”，她说，“我祝愿有更多的成功演出”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/2-support-letter-from-congresswoman-Nydia-M.-Velazquez.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第七选区国会众议员维乐贵丝（Nydia M. Velazquez）也为神韵发来贺词，并向所有参与以及主办神韵艺术团活动的全体人员致谢。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第15选区国会议员塞拉诺（Jose Serrano）在贺信中写道：“神韵是真正的家乡瑰宝，体现我们城市的多样化、创新和特质。”他亦表示，神韵对纽约艺术领域的贡献将继续激励很多人追逐自己的梦想。
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/8-support-letter-from-congressman-Jose-Serrano.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第15选区国会议员塞拉诺（Jose Serrano）在贺信中写道：“神韵是真正的家乡瑰宝。”</td>
+</tr>
+</tbody>
+</table>
+
+<b>神韵将真正的中国传统搬上舞台 极具价值</b><p>
+  
+纽约第10选区众议员纳德勒（Jerrold Nadler）赞扬说：“神韵一直致力于恢复中国五千年的历史文化，这是给纽约的真正礼物。”
+
+“我感谢神韵把中国传统民族舞带到美国，纽约有幸每年期待神韵重返（纽约）的演出。”他表示，“在中国（大陆）箝制艺术自由的时代，神韵艺术家将真正的中国传统和人生价值观搬上舞台，这种努力比以往更具有价值。”
+
+最后他在贺信中说，“向所有参与神韵演出的艺术家以及活动主办方致以最美好的祝愿，祝愿神韵演出在林肯中心取得成功。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/7-support-letter-from-congressman-Nadler.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第十选区众议员纳德勒（Jerrold Nadler）赞扬，神韵是给纽约的真正礼物。</td>
+</tr>
+</tbody>
+</table> 
+
+纽约第16选区国会议员恩格尔（Eilot Engel）是美国国会众议院外国事务委员会副主席，他表示：“我深知我们在西方享有的艺术自由，对神韵这样的艺术团体有多重要。”
+
+他说：“对我们能够给神韵提供不受约束、不用经受中共审查的演出平台，我甚感欣慰。”
+
+此外，他表示“神韵独一无二的演出体验，已经成为全球成千上万人预约观看的演出”，而“观众也已经并将继续从艺术自由中获益”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/10-support-letter-from-congressman-Eilot-Engel-1.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">美国国会众议院外国事务委员会副主席、国会议员恩格尔（Eilot Engel)表示，观众从神韵的自由艺术演出中获益。</td>
+</tr>
+</tbody>
+</table>
+
+<b>宏扬中国传统文化 并与世界分享</b><p>
+
+阿尔巴尼第19选区国会议员法索（John J. Faso）表示，神韵杰出的演出使全人类受益，并让各种文化的族裔都赞赏不已，“所有文化都必须与过去保持连续性，感谢神韵为保留和振兴中国传统文化所做的努力”。
+
+他表示自己是艺术的强力支持者，看到美国人如此喜欢神韵演出感到非常高兴，“神韵演出值得世界各地的人都来欣赏，聆听演出传递的信息”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/9-support-letter-from-congressman-John-J.-Faso.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">阿尔巴尼第19选区国会议员法索（John J. Faso）表示，神韵值得世界各地的人都来欣赏。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）在贺信中说：“我赞赏神韵艺术团的奉献精神，以及维护中国传统文化的使命，并把她分享给全世界。”
+
+“在多年的巡演中，神韵艺术团通过舞蹈、音乐和服饰的艺术形式将中国传统文化带给了数百万人。”他表示，神韵艺术团每年在30多个国家巡演，“其非凡演出为各个社区提供了难忘、独特的文化体验”。
+
+杰弗里还说，作为纽约第8区国会议员，“我要感谢你们做出的贡献及对艺术的奉献”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/4-support-letter-from-congressman-Hakeem-Jeffries.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）在贺信中赞赏神韵艺术团的奉献精神。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）在贺信中说，神韵演出是对中华文化的一种美好而艺术的诠释，“神韵在纽约上演是本市的荣誉，因为神韵演出──这独一无二的艺术珍品，激励和鼓舞了全球的观众。我相信神韵今年在林肯中心和纽约州立大学（SUNY Purchase）的演出将继续发挥神韵艺术团这一引以为豪的优秀传统”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/11-support-letter-from-congressman-Donovan.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）称赞神韵是独一无二的艺术珍品。</td>
+</tr>
+</tbody>
+</table>
+
+<b>国会议员宣布1月为纽约神韵月</b><p>
+  
+纽约第20选区美国国会议员唐古（Paul D. Tonko）在贺信中宣布将1月定为“神韵月”。唐古表示，“神韵对提升社会精神所做的贡献得到社区的认可”，“其价值不能用酬劳和赞许来充分表达”。
+
+他说神韵的宗旨是复兴真正的传统中国文化，演出节目取材来自于中国历史、古代传奇、少数民族及普世价值，每年在世界上150多个剧场演出。
+
+鉴于神韵演出在保留和促进传统中国文化、道德以及艺术所做出的努力，以及其丰富五千年中国历史的贡献，特此宣布从2018年1月11日开始，1月为“神韵月”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第20选区美国国会议员唐古（Paul D. Tonko）宣布将1月定为“神韵月”。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第9选区国会议员克拉克（Yvette D. Clarke）发来褒奖，表示：
+
+“基于神韵艺术团，这一伟大的中国传统文化遗产，根植于对神、信仰、美德及对升华回天的笃信；
+
+“基于神韵保留中华五千年历史的核心和精神，并将她与世界分享；
+
+“基于西方的艺术自由激励神韵艺术家将中国（大陆）禁止的、真正的古老中国传统和价值观搬上舞台；
+
+“基于神韵通过世界一流的艺术及中国古典舞的形式打开心灵、激励道德提升，并给各地观众带来喜悦，已形成国际奇观；
+
+“我，克拉克（Yvette D. Clarke），纽约国会第9选区国会议员，荣幸在此褒奖神韵艺术团。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/3-Proclamation-from-Congresswoman-Yvette-D.-Clarke.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第9选区国会议员克拉克（Yvette D. Clarke）为神韵艺术团发来褒奖。</td>
+</tr>
+</tbody>
+</table>
+
+此外，纽约第1选区国会议员泽尔丁（Lee M. Zeldin）和第3选区国会议员舒奥齐（Thomas R. Suozzi）也为神韵颁发特别国会嘉奖令。
+
+泽尔丁在嘉奖令中表示，鉴于神韵对社区所做出的杰出、可贵的服务，特此颁发特别国会嘉奖令。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/5-US-Congressman-1st-District-Certificate-Lee-Zeldin.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第1选区国会议员泽尔丁（Lee M. Zeldin）褒奖神韵对社区做出杰出、可贵的服务。</td>
+</tr>
+</tbody>
+</table>
+
+舒奥齐表示，神韵复兴和弘扬中国五千年历史文化的使命，以及与现代世界分享这一财富的努力鼓舞他人，为神韵将中国古典舞带给全球观众颁发特别国会嘉奖令。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/6-US-Congressman-3rd-District-Certificate-Thomas-R.-Suozzi.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">第3选区国会议员舒奥齐（Thomas R. Suozzi）为神韵颁发特别国会嘉奖令，鉴于神韵将中国古典舞带给全球观众的贡献。</td>
+</tr>
+</tbody>
+</table>
+
+纽约第18选区国会议员马龙尼（Sean Patrick Maloney）亦给神韵艺术团发来褒奖。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney-1.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约第18选区国会议员马龙尼（Sean Patrick Maloney）发来褒奖，表彰神韵艺术团在纽约州致力于维护和弘扬五千年中国文化的贡献。</td>
+</tr>
+</tbody>
+</table>
+
+此外，纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）也发来给神韵艺术团的褒奖。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/14-Certificate-from-Congresswoman-Elise-M.-Stefanik.jpg" width=500></td>
+</tr>
+<tr>
+<td align="center">纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）为神韵艺术团发来褒奖。</td>
+</tr>
+</tbody>
+</table>
+
+附：向神韵艺术团2018年演出发出褒奖或贺信的纽约州各级政要部分名单
+
+<b>国会议员（14人）：</b><p>
+纽约第1选区国会议员泽尔丁（Lee M. Zeldin）
+
+纽约第3选区国会议员舒奥齐（Thomas R. Suozzi）
+
+纽约第6选区国会议员孟昭文（Grace Meng）
+
+纽约第7选区国会议员维乐贵丝（Nydia M. Velazquez）
+
+纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）
+
+纽约第9选区国会议员克拉克（Yvette D. Clarke）
+
+纽约第10区选区国会议员纳德勒（Jerrold Nadler）
+
+纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）
+
+纽约第15选区国会议员塞拉诺（Jose Serrano）
+
+纽约第16选区国会议员恩格尔（Eilot Engel）
+
+纽约第18选区国会议员马龙尼（Sean Patrick Maloney）
+
+纽约第20选区国会议员唐古（Paul D. Tonko）
+
+纽约第19选区阿尔巴尼国会议员法索（John J. Faso）
+
+纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）
+
+<b>纽约州参议员（18人）：</b><p>
+卡森斯（Andrea Stewart－Cousins），参议院民主党领袖
+
+艾维乐（Tony Avella）
+
+史塔文斯基（Toby Ann Stavisky）
+
+高顿（Martin J. Golden）
+
+蒙哥马利（Velmanette Montgomery）
+
+波萨德（Roxanne J. Persaud）
+
+奥特（Robert G. Ortt）
+
+布雷斯林（Neil D. Breslin）
+
+马齐奥尼（Kathleen Marchione）
+
+博奈西克（John J. Bonacic）
+
+汉默顿（Jesse E.Hamilton）
+
+泰迪斯可（James N. Tedisco）
+
+贝利（Jamaal T. Bailey）
+
+拉提梅尔（George Latimer）
+
+布鲁克斯（John E. Brooks）
+
+利浦斯（Elaine Phillips）
+
+博伊尔（Philip M. Boyle）
+
+纳瓦列（Kenneth LaValle）
+
+纽约州众议员（24人）
+奥博锐（Jeffrion L. Aubry）
+
+赫维希（Andrew D. Hevesi）
+
+圣巴巴拉（Angelo L. Santabarbara）
+
+麦克唐纳三世（John T. McDonald III）
+
+巴特勒（Marc W. Butler）
+
+科奇（Clifford W. Crouch）
+
+芬奇（Gary D. Finch）
+
+乔伊纳（Latoya Joyner）
+
+瓦内尔（Clyde Vanel）
+
+布莱克（Machael A. Blake）
+
+费伊（Patricia A. Fahy）
+
+沃尔什（Mary Beth Walsh）
+
+蒂勒（Fred Thiele）
+
+英格丽布如特（Steve Englebright）
+
+拉莫斯（Phil Ramos）
+
+加尔巴里诺（Andrew R Garbarin）
+
+卢皮纳奇（Chad Lupinaccio）
+
+拉亚（Andrew Raia）
+
+拉文（Charles Lavine）
+
+麦克唐纳（David G McDonough）
+
+乌尔索（Anthony D）Urso）
+
+麦凯维特（Thomas McKevitt）
+
+伦托（Joseph R. Lentol）
+
+约翰斯（Mark Johns）
+
+纽约市议员
+陈倩文（Margaret Chin）
+
+梅塞尔（Alan Maisel）
+
+伯雷利（Joseph C. Borelli）
+
+责任编辑：王愉悦
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
 <td align="center"><IMG SRC="img/1801072330351886-600x400.jpg" width=880></td>
 </tr>
 <tr>
