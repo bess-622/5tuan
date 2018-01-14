@@ -30,7 +30,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/1-support-letter-from-congresswoman-Grace-Meng.jpg" width=500></td>
+<td align="center"><IMG SRC="img/1-support-letter-from-congresswoman-Grace-Meng.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第六选区美国国会众议员孟昭文（Grace Meng）为神韵发来贺信。</td>
@@ -47,7 +47,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/2-support-letter-from-congresswoman-Nydia-M.-Velazquez.jpg" width=500></td>
+<td align="center"><IMG SRC="img/2-support-letter-from-congresswoman-Nydia-M.-Velazquez.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第七选区国会众议员维乐贵丝（Nydia M. Velazquez）也为神韵发来贺词，并向所有参与以及主办神韵艺术团活动的全体人员致谢。</td>
@@ -59,7 +59,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/8-support-letter-from-congressman-Jose-Serrano.jpg" width=500></td>
+<td align="center"><IMG SRC="img/8-support-letter-from-congressman-Jose-Serrano.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第15选区国会议员塞拉诺（Jose Serrano）在贺信中写道：“神韵是真正的家乡瑰宝。”</td>
@@ -78,7 +78,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/7-support-letter-from-congressman-Nadler.jpg" width=500></td>
+<td align="center"><IMG SRC="img/7-support-letter-from-congressman-Nadler.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第十选区众议员纳德勒（Jerrold Nadler）赞扬，神韵是给纽约的真正礼物。</td>
@@ -95,7 +95,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/10-support-letter-from-congressman-Eilot-Engel-1.jpg" width=500></td>
+<td align="center"><IMG SRC="img/10-support-letter-from-congressman-Eilot-Engel-1.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">美国国会众议院外国事务委员会副主席、国会议员恩格尔（Eilot Engel)表示，观众从神韵的自由艺术演出中获益。</td>
@@ -112,7 +112,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/9-support-letter-from-congressman-John-J.-Faso.jpg" width=500></td>
+<td align="center"><IMG SRC="img/9-support-letter-from-congressman-John-J.-Faso.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">阿尔巴尼第19选区国会议员法索（John J. Faso）表示，神韵值得世界各地的人都来欣赏。</td>
@@ -129,7 +129,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/4-support-letter-from-congressman-Hakeem-Jeffries.jpg" width=500></td>
+<td align="center"><IMG SRC="img/4-support-letter-from-congressman-Hakeem-Jeffries.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第8选区国会议员杰弗里（Hakeem S. Jeffries）在贺信中赞赏神韵艺术团的奉献精神。</td>
@@ -142,7 +142,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/11-support-letter-from-congressman-Donovan.jpg" width=500></td>
+<td align="center"><IMG SRC="img/11-support-letter-from-congressman-Donovan.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第11选区国会议员唐诺凡（Daniel M. Donovan, Jr.）称赞神韵是独一无二的艺术珍品。</td>
@@ -161,7 +161,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney.jpg" width=500></td>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第20选区美国国会议员唐古（Paul D. Tonko）宣布将1月定为“神韵月”。</td>
@@ -184,7 +184,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/3-Proclamation-from-Congresswoman-Yvette-D.-Clarke.jpg" width=500></td>
+<td align="center"><IMG SRC="img/3-Proclamation-from-Congresswoman-Yvette-D.-Clarke.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第9选区国会议员克拉克（Yvette D. Clarke）为神韵艺术团发来褒奖。</td>
@@ -199,7 +199,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/5-US-Congressman-1st-District-Certificate-Lee-Zeldin.jpg" width=500></td>
+<td align="center"><IMG SRC="img/5-US-Congressman-1st-District-Certificate-Lee-Zeldin.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第1选区国会议员泽尔丁（Lee M. Zeldin）褒奖神韵对社区做出杰出、可贵的服务。</td>
@@ -212,7 +212,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/6-US-Congressman-3rd-District-Certificate-Thomas-R.-Suozzi.jpg" width=500></td>
+<td align="center"><IMG SRC="img/6-US-Congressman-3rd-District-Certificate-Thomas-R.-Suozzi.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">第3选区国会议员舒奥齐（Thomas R. Suozzi）为神韵颁发特别国会嘉奖令，鉴于神韵将中国古典舞带给全球观众的贡献。</td>
@@ -225,7 +225,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney-1.jpg" width=500></td>
+<td align="center"><IMG SRC="img/12-Proclamation-from-Congressman-Sean-Patrick-Maloney-1.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约第18选区国会议员马龙尼（Sean Patrick Maloney）发来褒奖，表彰神韵艺术团在纽约州致力于维护和弘扬五千年中国文化的贡献。</td>
@@ -238,7 +238,7 @@
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
-<td align="center"><IMG SRC="img/14-Certificate-from-Congresswoman-Elise-M.-Stefanik.jpg" width=500></td>
+<td align="center"><IMG SRC="img/14-Certificate-from-Congresswoman-Elise-M.-Stefanik.jpg" width=400></td>
 </tr>
 <tr>
 <td align="center">纽约21选区上州国会议员斯特凡尼克（Thomas R. Suozzi）为神韵艺术团发来褒奖。</td>
@@ -370,7 +370,8 @@
 
 伯雷利（Joseph C. Borelli）
 
-责任编辑：王愉悦<hr>
+责任编辑：王愉悦
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -497,6 +498,7 @@ Parasar的朋友Bakhtiari女士是位明星地产经纪。 Bakhtiari 女士说�
 Bakhtiari 女士说：“我要对神韵的艺术家们说，请不要停下，我们一定会全心全意的支持你们！我们会让更多的人看到如此高质量的演出。或许有一天我能亲眼在生活中见到你们，我将会非常高兴。”
 
 责任编辑：文凤
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -607,6 +609,7 @@ Bakhtiari 女士说：“我要对神韵的艺术家们说，请不要停下，�
 购票热线：418-907-7436
 
 责任编辑：颜永明
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -697,6 +700,7 @@ Laura Williamson女士是教堂合唱团的女高音，观看演出后Williamson
 “神韵女高音歌唱家的音域很广，控制了全场，歌唱很美。” “她的演唱触动人心，我很喜欢。她是一位非常优秀的女高音。歌唱振奋人心。整场演出令人心满意足而又放松。”
 
 责任编辑：夏晶
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -813,6 +817,7 @@ Malpert曾在百老汇演出歌舞剧，她说：“神韵的舞蹈很独特，�
 结束旧金山的演出后，神韵国际艺术团将于1月9日至10日，在加州首府沙加缅度社区中心剧院上演三场演出。目前，神韵在沙加缅度演出的票已基本售罄。
 
 责任编辑：周行
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -922,6 +927,7 @@ Sonia Katyal女士曾是芭蕾舞演员，她说：“我曾经任职芭蕾舞�
 Katyal女士对神韵的演出意犹未尽，她表示：“观看完神韵，我觉得我更爱舞蹈了，并把我油然而生的、想去更多地了解神韵以及中国传统文化的动力带回家，而且，我很想把我的孩子带到神韵这里，让他们也能学习和了解古老的文化和价值。”
 
 责任编辑：文凤
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -1042,6 +1048,7 @@ Garibaldi夫妇来自委内瑞拉，Garibaldi女士在委内瑞拉是一名古�
 “这是我们第一次看到神韵这种（舞蹈）演出，中国舞真是出类拔萃！”她一再赞叹。
 
 责任编辑：林蓁
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
@@ -1880,6 +1887,8 @@ Zuckerman的太太也对晚会称赞不已，“神韵演员们的舞蹈技巧�
 他们表示，等了几年，现在终于如愿以偿，来看神韵了。“我们非常高兴来看神韵了，绝对会向人们推荐神韵。”
 
 责任编辑：周行
+<hr>
+
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
@@ -3022,7 +3031,7 @@ James Riser医生今年1月份在路易斯安那州的新奥尔良刚看过神�
 
 责任编辑：李缘
 
-<hr><hr>
+<hr>
 
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
