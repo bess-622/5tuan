@@ -1,5 +1,5 @@
 <img src="img/sy2018.jpg" width=880></a>
-
+<img src="img/sy-IP-0104-1.jpg" width=880></a>
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
