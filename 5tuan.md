@@ -1,7 +1,6 @@
 <img src="img/sy2018.jpg" width=880></a>
 <img src="img/sy-IP-0116-1.jpg" width=880></a>
 
-
 <table border="0" cellspacing="3" cellpadding="3">
 <tbody>
 <tr>
@@ -12,7 +11,293 @@
 </tr>
 </tbody>
 </table>
+<h1 align="center"><b>纽约神韵场场加座 主流争睹世界第一秀</b></h1>
 
+【大纪元2018年01月16日讯】（大纪元纽约记者站报导）纽约在经历了创纪录的暴风雪和低温天气后，迎来神韵热。被誉为世界第一秀的神韵演出，以全新节目亮相，再次在纽约造成轰动。<p>
+
+自1月11日神韵纽约艺术团在林肯中心开演以来，6场演出场场加座，一票难求；1月16日起，将继续上演8场（含加场）盛大演出，目前票房仅剩零星加座票。
+
+刚刚落幕的6场神韵演出吸引了纽约各界人士慕名前来观赏。观众表示， 演出美得令人“屏息”“目不转睛”；他们为神韵舞台所展现的中国璀璨传统文化而着迷，并从中获得人生的启迪。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801140004351973.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">纽约一家金融公司的高管Ed Petti与太太Karen Petti于1月13日观看了神韵纽约艺术团在林肯中心大卫寇克剧院的第三场演出。（林南宇／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+纽约一家金融公司的高管Ed Petti与太太Karen Petti看完神韵后欣喜地说：“演出让人获得心灵提升，也让人心情放松。”Petti表示，他感到神韵在及时提醒著现代社会中忙碌的人们，传统和普世价值的重要，传递著非常积极的信息。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801122247571973-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">纽约一家银行的高级主管Frank DelGiudice说，他始终没有搞明白神韵演员们是怎样从天幕飞入飞出的。（良克霖／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+纽约一家银行的高级主管Frank DelGiudice赞叹，神韵“天幕制作技术高不可测，我很好奇演员们是怎样从天幕飞入飞出的。我甚至探身向前仔细看，看演员是如何成为天幕动画的一部分，但还是没有搞明白他们到底是怎么做到的。这真是非常有趣！”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801122247501973-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">前投资银行家Fred Vonstange夫妇感叹神韵找回了失落的艺术。（良克霖／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+前投资银行家Fred Vonstange说，神韵舞蹈给人感觉“好像一种失落的艺术被重新找回”，“这些舞蹈演员们的优雅风姿，带给你一种平和的安宁，令人屏息。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801141634282153-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">纽约证券交易所退休经纪人George Dippeol携妻子Janet Dippeol观看了周日（1月14日）下午的神韵演出，他们表示神韵的大名早在朋友圈中传开了。（良克霖/大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+纽约证券交易所退休经纪人George Dippeol表示，神韵热已传到朋友圈，“前几天和朋友聊天，他们刚看过神韵、正在热议，我说我们也定好周日看。”他说回去后，要告诉没看的朋友，“一定要来看神韵”。
+
+<b>引商界领袖共鸣</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131803481886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2018年1月13日下午，国际管理公司CMS首席执行官Lenny Santorelli观看了神韵艺术团在纽约的第三场演出说：“我希望我也在舞台上，做和他们一样的事情。”（李辰／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“非常温暖”、“了不起！” “神韵教给我，看待世界的事物，任何事情都是有可能实现的”总部位于纽约的国际管理公司CMS（Complete Management Services）的首席执行官Lenny Santorelli先生说， “我希望我也在舞台上，做和他们一样的事情。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801141635032153-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2018年1月14日下午，公司总裁、建筑师、室内设计师Yana Abramovich（中）携2名儿子一同观看神韵，赞叹神韵启迪人们找回生命真我。（李辰／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+一家建筑设计公司的总裁、建筑师、室内设计师Yana Abramovich女士慕名前来观看神韵，她感叹演出完美融合各种艺术元素，充满神性，让她从中体会到生命的目的就是找到自己的神性，以及如何运用自己的神性。
+
+神韵短短2小时演绎中华五千年历史大戏，更让Abramovich感到经历了一场灵魂之旅，看到生命未来的光明，她将这种感受推及开来，“不只是我的灵魂，是每一个人的。在不知不觉中，演出可以把人们带入光明，唤醒他们。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131804031886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">跨国科技公司IBM退休副总裁Joe Dar，1月13日在纽约林肯中心大卫寇克剧院观赏了神韵纽约艺术团的第三场演出。（李辰／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+跨国科技公司IBM退休副总裁Joe Dar看完神韵演出后表示，他对中国文化有了深刻感悟。他说，神韵是能够指引人们走上“灵魂与品德兼美”的路，即教人“成为一个好人”。“人遵循正确的原则，才能抵达天国世界。”
+
+<b>演艺界人士慕名而来</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801111853332639.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">百老汇演员Carlyn Connolly和从事销售工作的先生Warren Connolly第一次观赏神韵演出，对舞蹈、音乐和展现出的丰富的文化内涵赞不绝口。（林南宇／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+百老汇演员Carlyn Connolly表示神韵演出感人至深，“艺术家们从博大精深的中国传统文化中，选取了如此丰富、风格各异的部分，再完美的提炼，这种以如此美妙、赏心悦目的方式呈现，让人实实在在感到灵魂被滋养充实。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131846171886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">美国知名电视制作人Frank Von Zerneck 1月13观看演出后表示，中国文化很了不起，观看神韵演出很有启发性。（新唐人电视台）</td>
+</tr>
+</tbody>
+</table>
+
+美国知名电视制作人Frank Von Zerneck观看神韵后说：“中国文化很了不起，我完全着迷了。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801130237331528-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">Randi Sloane是位演员，她于1月12日在纽约林肯中心大卫寇克剧院（The David H. Koch Theater at Lincoln Center）观看神韵纽约艺术团的演出，表示演出“令人惊叹”。（新唐人电视台）</td>
+</tr>
+</tbody>
+</table>
+
+“美得令人屏息！”电影演员Randi Sloane用此来形容观看神韵演出时的感受，“令人惊叹”，“演员们的表演非常精彩，他们如在空中起舞一般轻盈。”
+
+二胡温婉悠扬的乐音也令Sloane如痴如醉：“说实话，二胡奏响的那一瞬间，我完全被镇住了。”““我有一瞬间像被带入另一个世界，感觉自己不是身在剧院。这是一种很美妙的感受。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801111853282639.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">纽约演员Spencer Rosner1月11日观看了神韵纽约艺术团的演出。（林南宇／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+纽约演员Spencer Rosner表示，当神韵大幕开启，他的视线一下子就被那华丽祥瑞的场景吸引住了，音乐与鼓声震撼着心灵，超强的能量让他感受到浑身的震颤。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801111921222639-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2018年1月11日，纽约州韦斯切斯特的摄影师兼探戈舞蹈家Julia Juliati和母亲Liudmil Morgunova一同观看神韵在纽约林肯中心演出。这也是Juliati送给母亲的生日礼物。（梁欣／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+来自纽约州韦斯切斯特的获奖导演、摄影师Julia Juliati女士表示，神韵演出整体的舞台效果让她看到传统艺术和现代技术的完美结合，她连连称赞：“太了不起，太了不起！”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131804161886.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">伦敦时装设计师Jessica Kayll女士。（大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“我来纽约的一部分原因就是为了看神韵。” 伦敦时装设计师Jessica Kayll从大西洋彼岸飞到纽约看神韵。她说，她喜欢神韵平和而自然的服装色彩以及舞蹈和天幕等各种色彩的搭配。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131802591886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">1月13日下午，前芭蕾舞演员Gail Mulrooney观赏了神韵在纽约林肯中心的第三场演出。（卫泳／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+前芭蕾舞演员、马术教练Gail Mulrooney说：“整个演出都让我目不转睛，真是美妙绝伦。”
+
+百老汇的经典剧目《狮子王》主角辛巴扮演者Vincent McDowell说：“我非常享受这场演出，令人惊叹，展现了那么丰富的文化。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801142157412153.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">El Teatro Rodante Hispanico舞蹈公司一行14人前来观看神韵取经。（李辰／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+纽约地区一家舞蹈公司El Teatro Rodante Hispanic的总监Noemi Robinfon女士率舞蹈教师、舞蹈演员、学生一行14人慕名前来观看神韵取经。Robinfon说：“神韵演员的技巧令人难以置信地好。” “我希望我们的老师与学生能够知道这些技巧，当他们真正训练好了的时候，会跳出多么美的舞蹈。”
+
+该公司的舞蹈艺术总监兼编舞教师的Daisy Pernal女士表示，“舞蹈演员们把中国美丽的艺术和文化保存下来，他们的付出和真诚令我觉得无比珍贵。”
+
+珠宝设计师Marissa Picheria感慨，神韵舞蹈不仅是视觉的飨宴，也是美与德的结合，观看神韵舞蹈对她而言“是一种神圣的体验”；即使是在神韵演员们看似“简单的舞蹈动作中，也蕴含着如此纯净的精神”。
+
+<b>神韵让人们凝聚在一起</b><p>
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801111853562639.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">1月11日下午，波兰女伯爵Wanda Stawczyk（右）偕友人Thelma Nalbantian一同观赏了神韵在纽约的首场演出。（林南宇/大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+波兰女伯爵Wanda Stawczyk是神韵的忠实粉丝，她说，神韵演出她每年必看无疑，还广邀朋友们来观赏。“卓越精彩，美不胜收，真是奇妙非凡的演出。” 她说：“在纽约，你绝对看不到还有其它的演出能与之相媲美，我是艺术迷，从来没有在其它任何演出中看到这样高超的舞蹈，真是一场奇观。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801122344571973.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2017年纽约市长参选人Bo Dietl于1月12日晚在纽约林肯中心观看了神韵纽约艺术团的演出。（新唐人电视台）</td>
+</tr>
+</tbody>
+</table>
+
+“真是一场非凡的演出！能看到神韵真的太好了！”2017年纽约市长参选人Bo Dietl欣喜地说：“这演出能使人们都走到一起。如果人人都能看到这个演出，他们就能理解这一点。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801122339231973.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">纽约华人Winnie Jiang（左）与朋友Joey Pagan于1月12日晚在纽约林肯中心一同观看了神韵纽约艺术团的演出。 （林南宇／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+观看神韵演出，让来自广州的华人Winnie Jiang 女士觉得“很荣幸”。她说：“我们华人能够有这样的表演，让我觉得很荣幸，很骄傲，因为这么多的中国文化在美国展现出来，并发扬光大，提升了我们中国人在美国的地位。”
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801131804121886-600x400.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">2018年1月13日下午，纽约市政府行政管理人员、华裔邱小姐（Cathy）观看神韵后表示：“神韵表达的是一种普世的真理。”（李辰／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“神来之韵，真的是神韵。”纽约市政府公务员、华裔邱小姐（Cathy）感慨， 演出中体现的善触动了她的心灵，看完神韵后觉得“要找回自己，找回一个真正的价值、一个价值的起源”。
+
+<table border="0" cellspacing="3" cellpadding="3">
+<tbody>
+<tr>
+<td align="center"><IMG SRC="img/1801111853382639.jpg" width=880></td>
+</tr>
+<tr>
+<td align="center">1月11日下午，华人张女士与她的朋友Vincent Brotowsky一同观看了神韵纽约艺术团在纽约林肯中心的首场演出。（林南宇／大纪元）</td>
+</tr>
+</tbody>
+</table>
+
+“很自豪！”作为海外华人，张女士观赏到展示中华五千年文明的神韵演出，有着与西方观众不同的感受。她认为，传统的中国“非常了不起”，源远流长的文化和历史，值得华人与世界人士了解。 
+
+责任编辑：李缘
+
+<hr>
 <h1 align="center"><b>神韵风靡纽约 演艺界人士感佩中国传统文化</b></h1>
 
 【大纪元2018年01月15日讯】（大纪元记者卫泳美国纽约报导）当挑剔的纽约演艺界人士与展现中国五千年神传文明的“世界第一秀”相遇，会激荡出什么火花？<p>
